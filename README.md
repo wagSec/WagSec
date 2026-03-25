@@ -5,7 +5,6 @@
   
 - 💬 Ask me about ...
 - 📫 How to reach me: netowagner97@gmail.com
-- 😄 Pronouns: ele/dele
 
 ---
 
